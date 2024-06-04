@@ -1,2 +1,2 @@
 # Entrega-Final-Bite-Forge-2.0
-Entrega por: Yorladys Argumedo Lozano, Sebastian Castro Guzman 
+Entrega por: Yorladys Argumedo Lozano cc: 1038824209, Sebastian Castro Guzman cc: 1029720632
